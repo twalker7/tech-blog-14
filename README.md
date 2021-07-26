@@ -1,3 +1,3 @@
 # tech-blog-14
 
-## PLACEHOLDER - intention to submit this assignment ! 
+## PLACEHOLDER - Intentions to resubmit this assignment at a later time! 
